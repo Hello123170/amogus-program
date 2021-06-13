@@ -4,3 +4,6 @@ close it with the task manager
 !THIS IS A FUNNY PROGRAM JUST FOR FUN!
 
 Dont copy this .exe file!
+
+sus amogus
+spying impostor
